@@ -15,3 +15,4 @@
 ## 🩸 O
 ## 🎮 League of Legend...etc..
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Nanum+Brush+Script&size=100&pause=1000&width=1000&height=300&lines=WASSUP+4%EA%B8%B0+%ED%99%94%EC%9D%B4%ED%8C%85!!)](https://git.io/typing-svg)
